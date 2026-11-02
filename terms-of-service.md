@@ -79,5 +79,5 @@ These Terms are governed by **French law**. The parties will first try to resolv
 
 ## 13. Contact
 
-**[COMPANY LEGAL NAME]**, [POSTAL ADDRESS], France
+**[Taste IT]**, [1209 Mountain Road PL NE, STE R,Albuquerque,NM 87110], USA
 Email: **imadcomptarec@gmail.com**
